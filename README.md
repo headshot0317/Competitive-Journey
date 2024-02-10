@@ -1,1 +1,1 @@
-The journey of Noob Programmer to Becoming Exxpert.
+The journey of Noob Programmer.
